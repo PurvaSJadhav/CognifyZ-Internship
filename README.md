@@ -1,0 +1,1 @@
+These are my tasks. I completed these tasks while working in CognifyZ for one month internship.
